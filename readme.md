@@ -1,2 +1,1 @@
-07827 336173
-LKrazz@hotmail.com
+Phone/Whatsapp/Text: 07827336173 Email: LKrazz@hotmail.com
